@@ -5,9 +5,9 @@ So, I doubt anyone is reading this... but if you made your way here somehow then
 2017 needs to be just as great and needs to catch me up on some sacrifices I made in the previous year.
 
 Specifically:
-Weight Loss
-Strength/Athletic Training
-Side Projects
+Weight Loss,
+Strength/Athletic Training,
+and Side Projects
 
 These are all things that have been important to me in the past, but have all fallen to the wayside due to work/relationships/laziness
 
